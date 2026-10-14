@@ -10,3 +10,7 @@ okelah
 
 ## Kesan Pesan Cluster 1 Sejauh Ini 
 ga espek cakadep TEKKOM dari cluster siji ^^
+
+## Harapan Kuliah 
+nak jadi pwner sejati
+
